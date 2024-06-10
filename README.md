@@ -1,7 +1,7 @@
 # 来个网站吧好人一生平安2023兄弟们深夜填空题
 二枚硬币空调享受还能坐着看电视呢屡还
 
-👉/观/看/入/口👉http://www.baidu.com/link?url=aFQjCpKLyjmMkJDTPPmIM46mcs0b-moe8w2Xe6-iLGqpxJgfWTUHTnAr0yehHs6i&wd
+<a href="https://github.com/zchuit/pxmid/issues/2">👉👉👉♥♥点此进入♥观看入口👈👉👉</a>
 
 来个网站吧好人一生平安2023兄弟们深夜填空题		1、活着无所追求，至死都会一无所有。
 　　这一次阳没有刨根寻根，迅速转移了话题。
